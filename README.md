@@ -10,7 +10,7 @@ HEY!
 
 IS THIS YOUR FIRST CONTRIBUTION ʕ •̀ ω •́ ʔ ?
 
-YES/NO 
+``YES`` OR ``NO``
 
 DOSN'T MATTER ╮(￣ω￣;)╭
 
