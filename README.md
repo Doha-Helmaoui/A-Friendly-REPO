@@ -21,6 +21,6 @@ now GOOOO \(★ω★)/  :point_down: :point_down: :point_down:
 
 ## Friends :busts_in_silhouette::heart: 
 
-:star: [Doha helmaoui](https://github.com/Doha-Helmaoui) hi  there	(・∀・)ノ This is an ``example``
+:star: [Doha helmaoui](https://github.com/Doha-Helmaoui), Hi  there	(・∀・)ノ ``This is an example``
 
 
