@@ -16,9 +16,9 @@ DOSN'T MATTER ╮(￣ω￣;)╭
 
 JUST ADD SOME LINES IF YOU WANT AND YOUR NAME
 
-YA WELCOME :hatched_chick: :cherries: :sparkles:  
+YA WELCOME  :hatched_chick: :cherries: :sparkles:  
 
-NOW GOOOO \(★ω★)/  :point_down: :point_down: 
+NOW GOOOO \(★ω★)/  :point_down: :point_down: :point_down: 
 
 
 
