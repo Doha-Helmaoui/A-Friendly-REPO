@@ -10,7 +10,7 @@ HEY!
 
 IS THIS YOUR FIRST CONTRIBUTION ʕ •̀ ω •́ ʔ ? ....  ``YES`` OR ``NO`` ....
 
-doesn't mater ╮(￣ω￣;)╭ just add some lines if you want and your NAME
+doesn't mater ╮(￣ω￣;)╭ just your NAME and some lines if you want
 
 YA WELCOME  :hatched_chick: :cherries: :sparkles:  
 
@@ -21,6 +21,6 @@ now GOOOO \(★ω★)/  :point_down: :point_down: :point_down:
 
 ## Friends :busts_in_silhouette::heart: 
 
-:star: hi  there	(・∀・)ノ this is an example
-[Doha helmaoui](https://github.com/Doha-Helmaoui)
+[Doha helmaoui](https://github.com/Doha-Helmaoui) :star: hi  there	(・∀・)ノ this is an example
+
 
