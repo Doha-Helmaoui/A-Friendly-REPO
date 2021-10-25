@@ -8,7 +8,7 @@
 
 HEY! 
 
-IS THIS YOUR FIRST CONTRIBUTION ʕ •̀ ω •́ ʔ ? ....  ``YES`` OR ``NO``
+IS THIS YOUR FIRST CONTRIBUTION ʕ •̀ ω •́ ʔ ? ....  ``YES`` OR ``NO`` ....
 
 doesn't mater ╮(￣ω￣;)╭ just add some lines if you want and your NAME
 
