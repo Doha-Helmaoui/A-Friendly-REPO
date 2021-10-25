@@ -12,13 +12,11 @@ IS THIS YOUR FIRST CONTRIBUTION ʕ •̀ ω •́ ʔ ?
 
 ``YES`` OR ``NO``
 
-DOSN'T MATTER ╮(￣ω￣;)╭
-
-JUST ADD SOME LINES IF YOU WANT AND YOUR NAME
+doesn't mater ╮(￣ω￣;)╭ just add some lines if you want and your NAME
 
 YA WELCOME  :hatched_chick: :cherries: :sparkles:  
 
-NOW GOOOO \(★ω★)/  :point_down: :point_down: :point_down: 
+now GOOOO \(★ω★)/  :point_down: :point_down: :point_down: 
 
 
 
