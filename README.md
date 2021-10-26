@@ -14,6 +14,6 @@ doesn't mater ╮(￣ω￣;)╭ just your NAME and some lines if you want
 
 YA WELCOME  :hatched_chick: :cherries: :sparkles:  
 
-now GOOOO \(★ω★)/  
+now GOOOO \(★ω★)/  :point_right: ``GO TO FRIENDS LIST AND MAKE YOUR CHANGES``  :point_left: 
 
-:point_right: ``GO TO FRIENDS LIST AND MAKE YOUR CHANGES``  :point_left: 
+
