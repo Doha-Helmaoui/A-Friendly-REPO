@@ -1,6 +1,6 @@
 # A Friendly REPO
 
-![GitHub license](https://img.shields.io/github/license/Ayahelmaoui/5pp.svg)
+![GitHub license](https://img.shields.io/github/license/Ayahelmaoui/A-Friendly-REPO.svg)
 ![Team Open Minds](https://img.shields.io/badge/Members%20of-Team%20Open%20Minds-blue.svg?color=0099CC)
 ![first-temers](https://img.shields.io/badge/first--timers-friendly-hotpink)
 ![PRs-welcome](https://img.shields.io/badge/Pull%20Requests-Welcome-success)
