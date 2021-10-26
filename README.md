@@ -16,4 +16,4 @@ YA WELCOME  :hatched_chick: :cherries: :sparkles:
 
 now GOOOO \(★ω★)/  
 
-:point_right: ``GO TO FRIEND LIST AND MAKE YOUR CHANGES``  :point_left: 
+:point_right: ``GO TO FRIENDS LIST AND MAKE YOUR CHANGES``  :point_left: 
