@@ -18,6 +18,6 @@ now GOOOO \(★ω★)/
 
 :point_right: ``GO TO FRIENDS LIST AND MAKE YOUR CHANGES``  :point_left: 
 
-### Friends List :busts_in_silhouette::heart: 
+## Friends List :busts_in_silhouette::heart: 
 
 :star: [Doha helmaoui](https://github.com/Doha-Helmaoui), Hi  there	(・∀・)ノ ``This is an example``
