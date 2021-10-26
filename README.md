@@ -10,7 +10,7 @@ HEY!
 
 IS THIS YOUR FIRST CONTRIBUTION ʕ •̀ ω •́ ʔ ? ....  ``YES`` OR ``NO`` ....
 
-doesn't mater ╮(￣ω￣;)╭ just your NAME and some lines if you want
+doesn't mater ╮(￣ω￣;)╭ just add your NAME and some lines if you want
 
 YA WELCOME  :hatched_chick: :cherries: :sparkles:  
 
