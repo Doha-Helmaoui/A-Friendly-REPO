@@ -6,4 +6,6 @@
 
 :star: [Aya Helmaoui](https://github.com/Ayahelmaoui), hello! aya was here 😸
 
-:star: [Yadoun Douaa](https://github.com/YadounDouaa), 
+:star: [Yadoun Douaa](https://github.com/YadounDouaa)
+
+:star: [Hachemi Zakaria Zine El Abidine](https://github.com/HachemiZakariaZineElAbidine)
