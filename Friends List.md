@@ -9,3 +9,5 @@
 :star: [Yadoun Douaa](https://github.com/YadounDouaa)
 
 :star: [Hachemi Zakaria Zine El Abidine](https://github.com/HachemiZakariaZineElAbidine)
+
+:star: [Meriem Mounchid](https://github.com/meriem-mounchid), Misaki 🌸
