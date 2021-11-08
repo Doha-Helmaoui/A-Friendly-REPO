@@ -11,3 +11,5 @@
 :star: [Hachemi Zakaria Zine El Abidine](https://github.com/HachemiZakariaZineElAbidine)
 
 :star: [Meriem Mounchid](https://github.com/meriem-mounchid), Misaki 🌸
+
+:star: [Gaurang Mishra](https://github.com/Gaurangseven), Hola Have a great day.
